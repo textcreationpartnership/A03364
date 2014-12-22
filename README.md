@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-¶ The Gardeners Labyrinth: Containing a discourse of the Gardeners life, in the yearly trauels to beHenrici Dethicki ad lectorem Carmen.COelum, aequor, tellus, nunc, lumina, flumina, fructus,Praestat,
+Henrici Dethicki ad lectorem Carmen.COelum, aequor, tellus, nunc, lumina, flumina, fructus,Praestat,
 1. ¶ To the righte honourable and his singular good Lorde, Sir William Cecill, knighte of the moste noble Order of the Garter, Baron of Burghlev, Lord high Tresurer of England &c. Henry Dethicke wysheth long health, with encrease of honour.
 
 1. ¶ A Table expressing the Contentes of euery Chapiter conteyned in this Labyrinth.
